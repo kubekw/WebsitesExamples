@@ -1,2 +1,2 @@
 # WebsitesExamples
-https://autoservicepawel.eu , http://cleanmasters.eu  ,  http://prolab.dental  , http://mqlgenerator.pl
+https://autoservicepawel.eu ,   http://prolab.dental  , http://cleanmasters.eu  , https://depilacja-laserowa-zgorzelec.pl , http://mqlgenerator.pl 
